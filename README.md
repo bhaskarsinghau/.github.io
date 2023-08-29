@@ -1,2 +1,2 @@
-# Bhaskar7390.github.io
+# Bhaskar Singh.github.io
 Portfolio Website
